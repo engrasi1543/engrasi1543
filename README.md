@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Engr Asi.
-- 👀 I’m interested in excavation a solutions to a problem.
+- 👀 I’m interested in making my self grow and develop and to know my calling - searching for the greater cause of my existence.
 - 🌱 I’m currently learning Data Analytics.
 - 💞️ I’m looking to collaborate on everyone who can help me and nurture me to become an effective Data Analyst.
 - 📫 You can reach me through my email asroldan.ree.rme@gmail. com or through my number 09153946769.
